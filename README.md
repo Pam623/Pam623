@@ -1,11 +1,11 @@
 ## Hi there 👋
-💬 Ask me about social media, live-streaming & SSW Marketing + TV
-📺 I’ve worked in e-commerce live-streaming & even hosted the Huangshan Maofeng Tea Harvest Ceremony
-✍️ I majored in Chinese Language & Literature, so I’m a words + storytelling nerd
-🎬 I love filming and editing travel vlogs and linking that creativity back into my work
-🎨 Big fan of handicrafts (especially crocheting), plus reading, travelling & photography
-🏸 Recently I’ve been trying all the things with SSWers – badminton, board games, frisbee & skateboarding
-🌍 I’m always keen to connect, explore new worlds (inner & outer) and unlock every possibility ✨
+- 💬 Ask me about social media, live-streaming & SSW Marketing + TV
+- 📺 I’ve worked in e-commerce live-streaming & even hosted the Huangshan Maofeng Tea Harvest Ceremony
+- ✍️ I majored in Chinese Language & Literature, so I’m a words + storytelling nerd
+- 🎬 I love filming and editing travel vlogs and linking that creativity back into my work
+- 🎨 Big fan of handicrafts (especially crocheting), plus reading, travelling & photography
+- 🏸 Recently I’ve been trying all the things with SSWers – badminton, board games, frisbee & skateboarding
+- 🌍 I’m always keen to connect, explore new worlds (inner & outer) and unlock every possibility ✨
 <!--
 **Pam623/Pam623** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
