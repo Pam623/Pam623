@@ -2,8 +2,8 @@
 - 💬 Ask me about social media, live-streaming & SSW Marketing + TV
 - 📺 I’ve worked in e-commerce live-streaming & even hosted the Huangshan Maofeng Tea Harvest Ceremony
 - ✍️ I majored in Chinese Language & Literature, so I’m a words + storytelling nerd
-- 🎬 Love filming travel vlogs (editing? never met her) — but the creativity still finds its way into my work
-- 🎨 Big fan of handicrafts (especially crocheting)
+- 🎬 Love filming travel vlogs (editing? never met her) 🤣
+- 🎨 Big fan of handicrafts
 - 🏸 Recently I’ve been trying all the things with SSWers – badminton, board games, frisbee & skateboarding
 - 🌍 Keen to connect and explore new possibilities ✨
 <!--
