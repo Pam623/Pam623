@@ -1,5 +1,5 @@
 ## Hi there 👋
-- 💬 Ask me about social media, live-streaming & SSW Marketing + TV
+ 💬 Ask me about social media, live-streaming & SSW Marketing + TV
 - 📺 I’ve worked in e-commerce live-streaming & even hosted the Huangshan Maofeng Tea Harvest Ceremony
 - ✍️ I majored in Chinese Language & Literature, so I’m a words + storytelling nerd
 - 🎬 I love filming and editing travel vlogs and linking that creativity back into my work
